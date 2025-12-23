@@ -12,7 +12,7 @@
  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  [velkiyr‎](https://www.tumblr.com/velkiyr/802236530366251008/im-the-gap-between-a-tragedy-and-comedy-credit) 
  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ᐢ..ᐢ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎she her ‎ ‎  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4f24f7dc-d3e7-4b96-b2b2-cd9bc1ac5831" />
  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=cutepolar&abbreviated=true&color=yellow&label=little+rats) 
- 
+  
  
  
  ‎‎
