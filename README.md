@@ -12,7 +12,7 @@
 
 <a href="."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461840730090766505/55_Sem_Titulo_20260116185257.png?ex=696c04c5&is=696ab345&hm=d30f80bf21fecd03bbde9f4bb2a864a2094c5dbbfb215a3dc1fed1a9cfe40767&=&format=webp&quality=lossless&width=1217&height=601" width="300" align="right" title="𓈒𝇋♡𝇌ׁ this github is a WIP ."></a>
 
-<a href="https://."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461842543628259376/55_Sem_Titulo_20260116190009.png?ex=696c0676&is=696ab4f6&hm=8dcc6b43cfa8284c8a04098e2a80fbbc1ec3ca23d47868a76c828d3c6d6929f0&=&format=webp&quality=lossless&width=1217&height=601" width="310" title="𓈒𝇋♡𝇌ׁ rentry" align="right"></a>
+<a href="https://."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461842543628259376/55_Sem_Titulo_20260116190009.png?ex=696c0676&is=696ab4f6&hm=8dcc6b43cfa8284c8a04098e2a80fbbc1ec3ca23d47868a76c828d3c6d6929f0&=&format=webp&quality=lossless&width=1217&height=601" width="385" title="𓈒𝇋♡𝇌ׁ rentry" align="right"></a>
 
 </div>
 
