@@ -18,7 +18,7 @@
 
 <div align="center">
 
-<a href="https://."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461845195707383892/55_Sem_Titulo_20260116191033.png?ex=696c08ee&is=696ab76e&hm=b79b29a397ebbb1fe0fd86289094e9301cf8f92619915e9802ca7e47ddb5138d&=&format=webp&quality=lossless&width=1217&height=601" width="300" title="𓈒𝇋♡𝇌ׁ strawpage" align="right"></a>
+<a href="https://."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461845195707383892/55_Sem_Titulo_20260116191033.png?ex=696c08ee&is=696ab76e&hm=b79b29a397ebbb1fe0fd86289094e9301cf8f92619915e9802ca7e47ddb5138d&=&format=webp&quality=lossless&width=1217&height=601" width="340" title="𓈒𝇋♡𝇌ׁ strawpage" align="right"></a>
 
 <a href="https://."><img src="https://64.media.tumblr.com/ce58821cbdad9d00c20930bfa82f3398/1f7cb71f9e13c52a-59/s1280x1920/0d121530bbc15da986047855fb11c7399d8127f1.gifv" width="750" title="𓈒𝇋♡𝇌ׁ " align="center"></a>
 
