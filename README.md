@@ -10,11 +10,11 @@
 
 
 
-<a href="."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461840730090766505/55_Sem_Titulo_20260116185257.png?ex=696c04c5&is=696ab345&hm=d30f80bf21fecd03bbde9f4bb2a864a2094c5dbbfb215a3dc1fed1a9cfe40767&=&format=webp&quality=lossless&width=1217&height=601" width="340" align="right" title="𓈒𝇋♡𝇌ׁ this github is a WIP ."></a>
+<a href="."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461840730090766505/55_Sem_Titulo_20260116185257.png?ex=696c04c5&is=696ab345&hm=d30f80bf21fecd03bbde9f4bb2a864a2094c5dbbfb215a3dc1fed1a9cfe40767&=&format=webp&quality=lossless&width=1217&height=601" width="300" align="right" title="𓈒𝇋♡𝇌ׁ this github is a WIP ."></a>
 
-<a href="https://."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461864686797459698/55_Sem_Titulo_20260117202801.png?ex=696c1b15&is=696ac995&hm=a399d46593186132cdf14b746ceb37e16b1a3f6dae893d8745936a3929fcc812&=&format=webp&quality=lossless&width=1217&height=601" width="340" title="𓈒𝇋♡𝇌ׁ rentry" align="right"></a>
+<a href="https://."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461864686797459698/55_Sem_Titulo_20260117202801.png?ex=696c1b15&is=696ac995&hm=a399d46593186132cdf14b746ceb37e16b1a3f6dae893d8745936a3929fcc812&=&format=webp&quality=lossless&width=1217&height=601" width="300" title="𓈒𝇋♡𝇌ׁ rentry" align="right"></a>
 
-<a href="https://."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461845195707383892/55_Sem_Titulo_20260116191033.png?ex=696c08ee&is=696ab76e&hm=b79b29a397ebbb1fe0fd86289094e9301cf8f92619915e9802ca7e47ddb5138d&=&format=webp&quality=lossless&width=1217&height=601" width="340" title="𓈒𝇋♡𝇌ׁ strawpage" align="right"></a>
+<a href="https://."><img src="https://media.discordapp.net/attachments/1455985734057066657/1461845195707383892/55_Sem_Titulo_20260116191033.png?ex=696c08ee&is=696ab76e&hm=b79b29a397ebbb1fe0fd86289094e9301cf8f92619915e9802ca7e47ddb5138d&=&format=webp&quality=lossless&width=1217&height=601" width="300" title="𓈒𝇋♡𝇌ׁ strawpage" align="right"></a>
 
 <a href="https://."><img src="https://64.media.tumblr.com/ce58821cbdad9d00c20930bfa82f3398/1f7cb71f9e13c52a-59/s1280x1920/0d121530bbc15da986047855fb11c7399d8127f1.gifv" width="750" title="𓈒𝇋♡𝇌ׁ " align="center"></a>
 
